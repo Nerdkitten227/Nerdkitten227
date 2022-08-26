@@ -1,10 +1,19 @@
-- 👋 Hi, I’m @Nerdkitten227
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
 
-<!---
-Nerdkitten227/Nerdkitten227 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+✈✏✒↙↘↖↗♨♨↩✳✴✳♨♨↖↗↙↘✒✏✈
+      ✈✏✒JOIN KITTENCAFE
+   ✈✏✒Very Active and Competitive
+   ✈✏✒Lovingly Welcoming Community
+   ✈✏✒ We try to get into every contest
+↙↘↗↖↙↘↗↖↙↘↗↖↙↘↗↖↙↘↗↖↙↘↗↖↙↘↗↖↙↘↗↖↙↘
+   ✈✏✒Bullying will NOT be tolerated
+   ✈✏✒Role-playing/Rudeness will NOT be 
+tolerated
+   ✈✏✒Saying bad things about someone 
+ and/or something will NOT be tolerated 
+   ✈✏✒If you are not active 4 more than 
+ 1 month you will be kicked
+  
+
+       ✈✏✒WE HOPE TO SEE YOU AT✈✏✒
+                  KITTENCAFE
+             @kittencafe
